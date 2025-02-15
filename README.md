@@ -1,1 +1,1 @@
-Msc project
+Acadamic projects
